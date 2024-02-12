@@ -18,5 +18,5 @@
 Fascinado por design e tecnologia.
 
 ## Email:
-- carloslima230603@gmail.com
+- contato@carlosdqlima.com
 
